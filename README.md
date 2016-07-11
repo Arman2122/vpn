@@ -33,10 +33,5 @@ mypass
 
 کانال تلگرامی ما : 👇👇👇👇
 ------------------
-https://telegram.me/joinchat/DWyKcj6qYuFVLoGGQwIikQ
+https://telegram.me/joinchat/blaster_team
 
-سایت ما :
----------------
-http://cruelplus.ir
-
-M.KH
